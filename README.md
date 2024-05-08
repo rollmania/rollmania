@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @rollmania
 - 👀 I’m interested in bringings sweet memories to everyone!
 - 🌱 I’m currently learning coding.
-- 💞️ I’m looking to sell my amazing rolll cakes.
 - 📫 How to reach me Instagram @rollmaniaa
 
 <!---
